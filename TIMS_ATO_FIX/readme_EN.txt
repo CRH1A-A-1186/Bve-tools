@@ -24,7 +24,7 @@ Instructions for use:
 
 南局福段CRH1A
 Bilbili: https://space.bilibili.com/400513547
-GitHub: https://github.com/njfdCRH1A
+GitHub: https://github.com/CRH1A-A-1186
 
 zbx1425
 Bilbili: https://space.bilibili.com/12979372
